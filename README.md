@@ -13,7 +13,7 @@ welcome to the Retards u can find via steam
 ![](https://forthebadge.com/images/badges/not-a-bug-a-feature.svg)
 ![](https://forthebadge.com/images/badges/reading-6th-grade-level.svg)
 ![](https://forthebadge.com/images/badges/kinda-sfw.svg)
-![](https://forthebadge.com/images/badges/built-by-neckbeards.svg)
+
 
 
 

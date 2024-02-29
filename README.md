@@ -1,6 +1,6 @@
+![](https://img.shields.io/badge/Based-Very-9080c2)
 welcome to the Retards u can find via steam 
 
-![](https://img.shields.io/badge/Based-Very-9080c2)
 ![](https://forthebadge.com/images/badges/built-by-codebabes.svg)
 ![](https://forthebadge.com/images/badges/0-percent-optimized.svg)
 ![](https://forthebadge.com/images/badges/as-seen-on-tv.svg)

@@ -15,5 +15,5 @@ welcome to the Retards u can find via steam
 ![](https://forthebadge.com/images/badges/reading-6th-grade-level.svg)
 ![](https://forthebadge.com/images/badges/kinda-sfw.svg)
 
-
+Will me baking a list for the faggot steam groups next!
 
